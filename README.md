@@ -1,1 +1,1 @@
-This GitHub is just awesome!!
+- This GitHub tutorial is just awesome!! Thank you Kunal!
